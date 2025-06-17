@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ualma20
-- 👀 I’m interested in concept art, character design and visual development. I love making art and creating amazing characters and wonderful magical worlds.
+- 👀 I’m interested in concept art, character design, illustration and visual development. I love making art and creating amazing characters and wonderful magical worlds.
 - 💞️ I’m looking to collaborate on amazing projects and improving my skills.
 - 📫 How to reach me: alexandra.maspares@gmail.com 
 - 😄 Pronouns: she/her
